@@ -7,4 +7,4 @@
 - drizzle left over oil and spices over salmon
 - flip salmon (scale side should be nearly 100% blackened/charred)
 - let drip a bit
-- turn burner back on to medium (valve half open) (ensure minimal flame ups) (cook ~8 min more)
+- turn burner back on to low (valve quarter open) (ensure minimal flame ups) (cook ~5 min more)
